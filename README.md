@@ -58,7 +58,7 @@
 * Other seasonal fruit that looks good
 
 #####Bread#####
-* Frech bread/baguette (fresh)
+* French bread/baguette (fresh)
 * Tortillas (flour, medium sized)
 * Hamburger/hot dog buns (cheap)
 
